@@ -1,0 +1,1 @@
+O curso está sendo bastante desafiador porque, embora não seja meu primeiro contato com programação, eu não tenho muita experiência ou familiaridade, então muitas vezes fico perdida, mas sempre dando os corres pra aprender e aproveitar a oportunidade!
